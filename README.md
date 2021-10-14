@@ -8,7 +8,6 @@ I'm Trương Huỳnh Đức <br>
 a Vietnamese IT student :3 <br>
 
 <br>
-Contact me on: <br>
 Facebook: https://www.facebook.com/tr.huynh.duc <br>
 Email: thduc.dev@gmail.com <br>
 
